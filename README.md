@@ -1,2 +1,3 @@
-# Jahir.Be
-Mi perfil es publico
+# Jahir.Sant.Lop. 
+Actualmente busco trabajo
+###Skilss
